@@ -1,5 +1,6 @@
 
-![pythonbrasil2015](https://github.com/luisfernandogbraga/luisfernandogbraga/assets/134460985/3637f2dc-fc66-48b0-8e38-4829b30d7ad0)
+![pythonbrasil2015](https://github.com/luisfernandogbraga/luisfernandogbraga/assets/134460985/80304dff-00d9-4b90-97f2-66099897535c)
+
 
 
 - 👋 Hi, I’m @luisfernandogbraga
